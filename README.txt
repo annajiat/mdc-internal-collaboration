@@ -8,3 +8,5 @@ Hi it's Agata here. :)
 
 Hi it's Mirjam
 hello everyone!
+
+Hi, it's Sasha! Hi to everyone!
